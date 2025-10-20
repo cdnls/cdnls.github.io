@@ -1,3 +1,3 @@
-# cdnls.github.io
+# CDNLS.GITHUB.IO
 Cdn Load Script... 
 this pages for my project script.. 🥰😍
